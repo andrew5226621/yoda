@@ -1,4 +1,3 @@
-# Ooh! Nice computer you got here! Can I have it?
+# THIS IS FOR EDUCATIONAL PURPOSES ONLY!
 
-This website will crash your browser. It also crashes Chromebooks since Chromebooks run completely off of the browser.
-Mario wants your computer so he will have it.
+After the video ends, your chromebook will crash and thats all you need to know (:
